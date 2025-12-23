@@ -1,0 +1,2 @@
+La DDDDC a été écrit en 1792 par le conseil royal de [[Gertrudia ]]et le [[congres des plumes unies ]] de [[Palmétropole ]] dans l'objectif de réaffirmer le caractère sacrée du canard en se basant sur la déclaration des droits de l'homme et du citoyen  de 1789
+![[declaration des droits des canards.docx]]

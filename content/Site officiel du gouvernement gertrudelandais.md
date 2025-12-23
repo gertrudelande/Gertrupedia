@@ -1,0 +1,1 @@
+Le [[Gouvernement Gertrudelandais]] tient a jour plusieurs site tel que le site officiel gertrudelandais a cette URL https://gertrudelande.webnode.fr , ce site est la principale plateforme numérique gouvernementale de Gertrudelande . Le Gouvernement a aussi des liens etroits avec la [[télévision Gertrudelandaise]] dont la chaine principale est [[TG1]] 

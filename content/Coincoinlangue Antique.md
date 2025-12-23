@@ -1,0 +1,1 @@
+Le coincoin langue antique est une langue morte dans lequel fut originellement écrit le [[Texte sacrée du Gertrudisme]]  , elle a donnée le [[Coincoin Langue]] , au jour d'Hui parlée a GertrudeLande 

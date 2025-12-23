@@ -1,0 +1,2 @@
+le canton de Vatemplume est un [[Cantons]] de [[Gertrudelande]] situe dans le centre est du pays 
+Ce canton a une population ([[Population gertrudelandaise]]) faible et n'a aucune ville majeur , il est administrer par le [[duc du canton de Vatemplume ]] , le canton est marqué la [[foret du nid]] et est en majorité occupé par le [[parc nationale des plaines de Vatemplumes]] faisant du canton une [[zone touristique ]]importante de Gertrudelande

@@ -1,0 +1,1 @@
+le coincoinlangue est une langue parlée a [[Gertrudelande]] surtout dans les régions rurales et parmi les populations de canards , elle est une langue issu du [[Coincoinlangue Antique]] dans sa propre famille linguistique .

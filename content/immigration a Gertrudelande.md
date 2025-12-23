@@ -1,0 +1,2 @@
+Gertrudelande connais une immigration plutôt faible , imputable a son caractère insulaire et a son climat plutôt froid , on constate cependant une forte proportion d' [[oies]] locuteur du [[Coincoin Langue]] et d'humains en provenance de la francophonie 
+ces immigrées sont assimilée a la nation gertrudelandaise par le biais du [[test de naturalisation]] 

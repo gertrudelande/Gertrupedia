@@ -1,0 +1,3 @@
+A gertrudelande s'applique le droit du sang , le seul autre moyen d'obtenir la nationalité gertrudelandaise est de passer par un [[test de naturalisation]] 
+
+La nationalité gertrudelandaise permet a ses détenteurs de voter et être a l'initiative des RIP dans leurs canton de résidence , ( [[système politique gertrudelandais]]) , la nationalité permet également de propser des dolences aux duc de leur canton 

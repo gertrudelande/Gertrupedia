@@ -1,0 +1,1 @@
+la télévision local Gertrudelandaise est un programme diffusée par [[TG1]] qui fait partie des [[médiats gertrudelandais]] les plus important , ce programme est diffusée en [[Coincoin Langue]] se concentre sur les actualité du [[Domaine des monts gertrudiens]] et du [[canton de Vatemplume]] 

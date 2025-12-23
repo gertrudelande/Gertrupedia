@@ -1,0 +1,3 @@
+![[Pasted image 20251223142456.png]]
+
+Les cartes d'identité gertrudelandaise sont obligatoire pour circuler dans le pays , elle se composent du nom prénom , sexe , de la nationalité et du lieu de naissance , le tout accompagnée d'une photo et d'un QR code fournissant des informations supplémentaire sur l'individus, les cartes d'identité sont commandable par le biais d'une demande a [[ANC]] depuis le [[Site officiel du gouvernement gertrudelandais]] moyennant 10Gc et le remplissage d'un formulaire d'informations , pour les étranger souhaitant obtenir la [[nationalité gertrudelandaise]] un [[test de naturalisation]] est possible.

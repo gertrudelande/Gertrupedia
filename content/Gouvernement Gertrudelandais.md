@@ -1,0 +1,1 @@
+Le gouvernement gertrudelandais dirige le pays de Gertudelande , en suivant un système politique ancestrale ( [[système politique gertrudelandais]]) , ce gouvernement suit les percepts du gertrudisme et de la [[déclaration des droits des cannards ]], le gouvernement gertrudelandais se lie au [[Site officiel du gouvernement gertrudelandais]] 
